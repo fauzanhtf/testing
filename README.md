@@ -6,11 +6,12 @@ Tes Created
 tes pertama kali ngedit
 punyaku dihapus :(
 
+yeay punyaku ada lagi
 
 Tes Ngedit
 Ngedit lagi dia
-eh keterusan
 berhenti woy
+eh keterusan
 
 alhamdulilah
 
