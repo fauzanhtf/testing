@@ -26,3 +26,4 @@ Tes Tes Tesssss
 
 Aku punya anak namanya Maui
 meong meong bunyinya
+dia nakal banget
