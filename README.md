@@ -25,3 +25,4 @@ Meong
 Tes Tes Tesssss
 
 Aku punya anak namanya Maui
+dia nakal banget
